@@ -43,3 +43,26 @@ steph237 (https://github.com/steph237)
 ### LinkedIn Handle
 
 Stephanie Nkwatoh
+
+# Nnma Eleanor
+
+### Location
+
+Bamenda, Cameroon
+
+### Academics
+
+Masters in Educational leadership
+
+### Interests
+
+- Food, music, singing.
+
+
+### Profile Link
+
+NnamEl (https://github.com/NnamEL)
+
+### LinkedIn Handle
+
+Nnam Eleanor
